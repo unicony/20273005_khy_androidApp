@@ -2,4 +2,5 @@
 
 20273005_김혜윤
 
-![그림1](https://user-images.githubusercontent.com/80835449/132810948-b10864a7-d687-4b64-a7a9-dedff9c812b5.jpg)
+![20273005_김혜윤](https://user-images.githubusercontent.com/80835449/132811119-6afbfe0d-9d64-45c0-898d-d46a1a2109ca.jpg)
+
